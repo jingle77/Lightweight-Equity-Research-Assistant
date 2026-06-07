@@ -1,0 +1,1 @@
+# Lightweight-Equity-Research-Assistant
